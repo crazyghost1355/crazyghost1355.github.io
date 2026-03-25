@@ -1,0 +1,1 @@
+# crazyghost1355.github.io
